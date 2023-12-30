@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gaelLeTerrible
 - 🌱 I’m intereset by past
-- I'm built present
+- I' built present
 - I'give inspiration for futur
 - ready for learn
 - ready for collaboration on all project
